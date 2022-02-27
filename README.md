@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @just420ott
+- 👀 I’m interested in all things gaming console related
